@@ -2,7 +2,7 @@
 
 I'm currently employed at [AND Digital](https://www.and.digital) working as a Senior Product Developer.
 
-My ambition is to return to a Principal/Lead role ASAP and one day start my own software company.
+My ambition is to one day start my own software company.
 
 ## Employment History
 
